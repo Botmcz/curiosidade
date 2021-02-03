@@ -1,0 +1,2 @@
+# curiosidade
+inteligencia artificial
